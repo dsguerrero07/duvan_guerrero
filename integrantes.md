@@ -1,1 +1,1 @@
-Duvan Guerrero - la tipica - tomo electrolit con rd bull
+no me gusto lo que hiciste 
