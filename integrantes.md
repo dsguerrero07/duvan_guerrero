@@ -1,1 +1,1 @@
-JAJAJAJAJAJ TE BORRE TODOOOOOO
+no me gusto lo que hiciste 
